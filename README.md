@@ -1,1 +1,1 @@
-# projeto
+A RosyGlow é uma marca de blush que oferece produtos de alta qualidade, com textura suave e aveludada, garantindo fácil aplicação e longa duração. Seus blushes são feitos com pigmentos intensos e ingredientes seguros, dermatologicamente testados, e estão disponíveis em uma variedade de tons para todos os tipos de pele. A marca se destaca pelo excelente custo- benefício, proporcionando cores vibrantes e um acabamento natural. Com preços acessíveis, os produtos da RosyGlow são vendidos em lojas físicas e online, sendo uma escolha popular no mercado de cosmeticos.
